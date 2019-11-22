@@ -7,5 +7,5 @@
 
 We help foreigners find jobs in japan. If you are interested,  please contact us.
 
-Email: codinginjapan@gmail.com
-Twitter: @Rena63281060
+Email: codinginjapan@gmail.com  
+Twitter: @Rena63281060  
